@@ -1,0 +1,2 @@
+# PensamentoComputacional-1D
+TRABALHOS DE PENSAMENTO COMPUTACIONAL
