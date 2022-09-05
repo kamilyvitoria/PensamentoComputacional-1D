@@ -12,8 +12,7 @@ plantar e colher amor próprio.*
 
 *é o que eu ensinaria pro meu eu de 
 15 anos, pra ele nunca mais ousar
-dizer que não é suficiente pra alguém*
-**(JOÃO DOEDERLEIN)**
+dizer que não é suficiente pra alguém* **(JOÃO DOEDERLEIN)**
 ![Isso é uma imagem](https://i.pinimg.com/236x/0c/7a/76/0c7a7617d86f4ea301fbefebd1aaee97.jpg)
 ![Isso é uma imagem](https://i.pinimg.com/236x/45/f9/b3/45f9b39c098e80bbc2e45b1fda55a5a9.jpg)
 ![Isso é uma imagem](https://i.pinimg.com/236x/9f/71/7f/9f717fc559b93e52940515845ea659aa.jpg)
